@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @o-r-i-z-u-r-u
+- 👀 I’m interested in BUTTS
+- 🌱 I’m currently learning MORE ABOUT BUTTS
+- 💞️ I’m looking to collaborate on YOU GUESSED IT, BUTTS
+- 📫 How to reach me info@orizu.ru
